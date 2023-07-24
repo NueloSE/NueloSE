@@ -14,6 +14,6 @@
 - 👯 I’m looking to developing a career in Software Engineering
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
-- 📫 How to reach me: akalo.emmanuel18@gmail.com
+- 📫 How to reach me: akalo.emmanuel18@gmail.com, https://www.linkedin.com/in/emmanuel-akalo/
 - 😄 Pronouns: HE
 - ⚡ Fun fact: 
