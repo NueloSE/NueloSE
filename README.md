@@ -5,7 +5,7 @@
 
 ## About me
 
-**Hi** 👋 I'm emmaNUEL akaLO ~ NUELO
+**Hi** 👋 I'm emmaNUELLA akaLO ~ NUELO
 
 - 🌱 I’m currently learning with AlxSE program started 17th July 2023
   - [x] shell basics
@@ -15,5 +15,5 @@
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: akalo.emmanuel18@gmail.com, https://www.linkedin.com/in/emmanuel-akalo/
-- 😄 Pronouns: HE
+- 😄 Pronouns: SHE
 - ⚡ Fun fact: 
