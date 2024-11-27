@@ -15,5 +15,5 @@
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: akalo.emmanuel18@gmail.com, https://www.linkedin.com/in/emmanuel-akalo/
-- 😄 Pronouns: SHE
+- 😄 Pronouns: He
 - ⚡ Fun fact: 
